@@ -1,7 +1,5 @@
 ## 🌟 Hi there!
 
-![Felix's counter](https://count.getloli.com/@Felix201209's+counter?name=Felix201209%27s+counter&theme=green&padding=5&offset=0&align=top&scale=1&pixelated=1&darkmode=auto)
-
 You can call me **Felix** — or *whatever you like*! 🌈
 
 <div align="center">
