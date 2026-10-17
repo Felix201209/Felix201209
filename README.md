@@ -4,7 +4,7 @@ You can call me **Felix** — or *whatever you like*! 🌈
 
 <div align="center">
 
-**13** years old · indie developer & multi-AI orchestrator
+**14** years old · indie developer & multi-AI orchestrator
 
 </div>
 
